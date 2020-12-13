@@ -1,5 +1,3 @@
-# 4Images1MotPrivatePolicy
-
 Privacy Policy
 Softcaze built the 4 Images 1 Mot: Réflexion app as a Free app. This SERVICE is provided by Softcaze at no cost and is intended for use as is.
 
